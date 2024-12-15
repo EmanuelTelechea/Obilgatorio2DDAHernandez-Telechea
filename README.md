@@ -1,1 +1,1 @@
-# Obilgatorio2DDAHernandez-Telechea
+# Integrantes del equipo: Adriana Hernandez, Emanuel Telechea
